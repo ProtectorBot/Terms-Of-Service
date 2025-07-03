@@ -38,7 +38,7 @@ By using the **Protector Bot** (“the Bot”), you agree to be bound by these T
 
 ## 7. Contact
 
-For questions or concerns, please contact the Bot owner via GitHub Issues or [your preferred contact method].
+For Buisness Inquires Please Contact MYCH.ProtectorBot@gmail.com
 
 ---
 
